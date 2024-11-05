@@ -1,1 +1,1 @@
-### 🤙🏻 только через Telegram: @HHNWW
+Telegram: @HHNWW
